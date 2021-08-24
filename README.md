@@ -1,0 +1,2 @@
+# ezgubot
+ezgumaqsad-sari
